@@ -11,7 +11,7 @@ waveforms, data and frequency domain analysis, in as many applications as I can.
  I'm also starting to redevelop my Spanish speaking by diving into Latin literature. Speaking a language is ultimately the best way to learn, but I find that reading helps me
  contextualize certain syntax and build a better understanding of how/when to use particular phrases.
  
-Nevertheless, there is a lot to look forward to. Always keep opportunity in mind.
+Nevertheless, there is a lot to look forward to, and much more for me to upload here. Stay tuned, stay positive.
 
 📫 heavey.ej@gmail.com
 
